@@ -1,0 +1,1 @@
+# wicked-full-kr-version
